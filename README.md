@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @noburukto
+- 👀 I’m interested in py //
+- 📫 How to reach me tlg: noburukto // ig: noburukto //
